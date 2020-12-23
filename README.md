@@ -9,13 +9,13 @@ Gist About me
 - 🌋 I’m always looking for challenging work oppurtunities ahead.
 - 📬 How to reach me: <a href="ehsanmavaei@gmail.com">Let's get in touch!</a>
 - 🧗🏾‍♀️ I try to: Go beyond and push the bounds
- 👨🏻‍💻 
+ 
 
 ### Other places you can find me 
 
 📷[follow my instagram](https://www.instagram.com/ehsancode/)
 
-🐣 [See my Tweet](https://twitter.com/ehsanmavaei)
+🐤 [See my Tweet](https://twitter.com/ehsanmavaei)
 
 ###
 
