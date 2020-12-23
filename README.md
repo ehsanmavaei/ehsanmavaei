@@ -1,6 +1,6 @@
-### Hi there It's me Ish∆n 👋
+### Hi there It's me Ehsan 👋
 
-[![HitCount](http://hits.dwyl.com/ishan-me/ishan-me.svg)](http://hits.dwyl.com/ishan-me/ishan-me)
+[![HitCount](http://hits.dwyl.com/ehsanmavaei/ehsanmavaei.svg)](http://hits.dwyl.com/ehsanmavaei/ehsanmavaei)
 
 Gist About me
 
